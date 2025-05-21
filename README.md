@@ -8,7 +8,7 @@
 ✅ Fast login  
 ✅ Fully customizable to your needs
 
-🔗 Check out my current source here: https://discord.gg/WcfBDshM
+🔗 Check out my current source here: https://discord.gg/snwJYnBc
 
 ⚠️ Limited Slots – Only 5 people can buy it!
 
