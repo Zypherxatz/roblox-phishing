@@ -11,3 +11,7 @@
 🔗 Check out my current source here: https://discord.gg/WcfBDshM
 
 ⚠️ Limited Slots – Only 5 people can buy it!
+
+---
+
+![Image](https://github.com/user-attachments/assets/f692d614-16a4-4861-99fd-dbcdf18feb27)
